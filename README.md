@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-MOGE940624MSLRRM00
+MOGE940624MSLRRM00
